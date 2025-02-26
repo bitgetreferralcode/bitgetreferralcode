@@ -1,4 +1,4 @@
-<h1>Bitget Referral Code: frbm - Claim Up to $6200 USDT Bonus & 50% Trading Fee Discount (2025)</h1>
+<h1>BITGET Referral Code: frbm ($6200 Bonus)</h1>
 
 <p>Maximize your trading potential on Bitget with the exclusive <a href="https://partner.bitget.com/bg/78C9LH" target="_blank" rel="noopener noreferrer"><strong>Bitget referral code: frbm</strong></a>. New users can unlock up to <strong>$6200 USDT in bonuses</strong> and enjoy a substantial <strong>50% discount on trading fees</strong>. This guide will walk you through how to use the code and claim your rewards in 2025.</p>
 
